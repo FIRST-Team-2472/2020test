@@ -2,5 +2,5 @@
 Sawyer
 u r bad
 Cool line
-at least i am nomore than soy sause
+Max is bad at video games, at least i am nomore than soy sause
 uncool
